@@ -1,14 +1,14 @@
 本站最新地址获取邮箱 更新于2024年4月18日
 
-天天吃瓜最新地址  https://ttcg1.loan （请复制到浏览器打开）
+天天吃瓜最新地址    https://ttcg1.loan （请复制到浏览器打开）
 
-永久地址（需VP恩、科学上网） https://ttcg.bet （请复制到浏览器打开）
+永久地址（需VP恩、科学上网）   https://ttcg.bet （请复制到浏览器打开）
 
-加入微信扣扣粉丝群   https://ttcg1.loan?path=/qun.html  （请复制到浏览器打开）
+加入微信扣扣粉丝群    https://ttcg1.loan?path=/qun.html  （请复制到浏览器打开）
 
-Telegram 官方用户群   https://t.me/ttcg1/3  （请复制到浏览器打开）
+Telegram 官方用户群    https://t.me/ttcg1/3  （请复制到浏览器打开）
 
-天天吃瓜官方商务： https://t.me/ttcg08  （请复制到浏览器打开）
+天天吃瓜官方商务：   https://t.me/ttcg08  （请复制到浏览器打开）
 
 
 
