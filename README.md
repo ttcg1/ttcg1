@@ -8,7 +8,7 @@
 
 Telegram 官方用户群      https://t.me/ttcg1/3     （请复制到浏览器打开）
 
-51大赛官方商务：     https://t.me/ttcg08     （请复制到浏览器打开）
+51大赛官方商务：     https://t.me/w1ds08     （请复制到浏览器打开）
 
 
 
