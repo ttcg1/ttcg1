@@ -6,7 +6,7 @@
 
 加入微信扣扣粉丝群      https://51ds03.fun?path=/qun.html     （请复制到浏览器打开）
 
-Telegram 官方用户群      https://t.me/ttcg1/3     （请复制到浏览器打开）
+Telegram 官方用户群      https://t.me/ttcg1/4     （请复制到浏览器打开）
 
 51大赛官方商务：     https://t.me/w1ds08     （请复制到浏览器打开）
 
